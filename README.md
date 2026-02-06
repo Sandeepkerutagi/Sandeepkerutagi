@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 I am Sandeep Kerutagi!
 i am web developer and AI Engineer
 
 
