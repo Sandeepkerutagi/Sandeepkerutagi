@@ -1,5 +1,5 @@
-# 💫 I am Sandeep Kerutagi!
-i am web developer and AI Engineer
+# Hi💫, I'm Sandeep Kerutagi!
+i am web developer and AI Engineer from India
 
 
 ## 🌐 Socials:
